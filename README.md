@@ -221,4 +221,4 @@ UnThreat Antivirus is provided as a **full free version** with all features and 
 Don't wait any longer! **Download UnThreat Antivirus free today** and protect your computer from all kinds of threats!
 
 ---
-**Last updated:** 2026-11-12 13:27:11 UTC
+**Last updated:** 2026-11-12 21:14:37 UTC
